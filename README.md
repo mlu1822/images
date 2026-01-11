@@ -1,1 +1,0 @@
-used as image gallery
